@@ -7,3 +7,6 @@ I carry 9-millimeter in the back of taxi
 
 ## Tha's what I'M Talking
 This is the story of the green rhinoceros.
+
+## Been A Long Time
+Since I rock and rolled

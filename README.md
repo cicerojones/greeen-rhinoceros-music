@@ -13,3 +13,6 @@ Since I rock and rolled
 
 ## As My Father Once Said...
 We are betrayed by destinations
+
+## Tell 'em bout it
+Hit 'em where it hurts
